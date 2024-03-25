@@ -1,0 +1,1 @@
+# StrukturData_B_23241074
